@@ -13,6 +13,6 @@
 📞 Contact
 If you have any questions or want to discuss my certifications, feel free to contact me at:
 
-Email: [link text](muralikrishnacm017@gmail.com)
+Email: [link](muralikrishnacm017@gmail.com)
 
-LinkedIn: [link text](:https://www.linkedin.com/in/murali-krishna-byripindi-6947232b2)
+LinkedIn: [link](:https://www.linkedin.com/in/murali-krishna-byripindi-6947232b2)
